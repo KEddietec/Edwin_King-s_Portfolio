@@ -1,0 +1,2 @@
+# Edwin_King-s_Portfolio
+Hi, I'm Eddie_King! I have a technical background and hold a Master of Science (M.S.) degree in Advanced Energy Technology from the Univeristy of Hull, with a major in Energy Data Processing and Analysis. I have up to 5 years of experience in the energy and sustainability, where I held roles such as Data Analyst or Project Data Anlysis. I am currently as an Assistant Manager, Data Analyst at a consulting company. 
